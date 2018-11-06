@@ -1,0 +1,1 @@
+[blog post](https://docs.google.com/document/d/1n7iAcGfIEeLLRZnkC3VyM47K09MMK4eUbML7Z5m9Ux0/edit?usp=sharing)
